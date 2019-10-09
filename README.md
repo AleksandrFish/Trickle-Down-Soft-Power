@@ -1,6 +1,6 @@
 # Trickle-Down-Soft-Power
 Do Russia’s Ties to European Parties Influence Public Opinion?
-Fortcoming at Foreign Policy Analysis
+Forthcoming at Foreign Policy Analysis
 
 DEPOSIT INFORMATION:
 Total # of Files: 2
